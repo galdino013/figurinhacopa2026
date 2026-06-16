@@ -1,0 +1,1 @@
+# figurinhacopa2026
